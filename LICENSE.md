@@ -1,4 +1,4 @@
-
+escape tsunami for brainrots custom Script is the best escape tsunami for brainrots Script, featuring auto-farm and fly. Safe and powerful for all
 
 
 
